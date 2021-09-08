@@ -123,3 +123,58 @@ northern perception
 - isaac mccoy had epiphany in 1823 about "aboriginia" and slaveholder andrew jackson became president in 1828. jackson had a history as a general slaughtering native peoples as a southern war hero
 - 97 percent of georgia voters voted for jackson.
 - december 1829, jackson called for "voluntary" emoigration of native peoples to lands west of the mississippi
+
+## Section Two: The View from Washington City
+
+### Chapter 3: The Debate
+
+_2021-09-07_
+
+the cherokee phoenix - 1828
+
+- published in northern georgia (chrokee capital new echota)
+- many english newspapers (1 per 10k people)
+- sequoyah, a chrokee polymath from little tennessee valley invented a written chrokee script
+- within a few years of inventing the script, 90% of chrokee nation was literate.
+- december 1829 cherokee phoenix published the "memorial of the cherokees" to the us congress
+- it asked for pity, sought to dispute the claim that chrokees were "tenants at will" in georgia
+- the cherokee and english translations were precisely worded differently per audience, aiming to appeal to both audiences
+- roughly 3k out of 18k chrokee signed this petition, most in chrokee syllabary
+- chrokee helped creek nation to draft their own
+- speaker of the house dismissed both without discussion
+- the cherokee memorial was distributed across newspapers and rallied northern sentiments
+- this production was seen as a direct challenge to the idea of native nations savagery and subhumanity
+- so much so that sequoyah was even said to have caucasian blood in an effort to combat the work
+- the cherokee phoeniz defied white southerners who thought all "persons of color" be denied the ability to speak for themselves
+- there was a scramble of sorts throughout the 1820s to prevent native nations from speaking for themselves, as well as an effort from native peoples to do so (cherokee scholar david brown)
+- by the time the first bill "for the exchange of lands" was introduced into congress in january 1830, native peoples had already cultivated a fervent opposition
+
+jackson, everts, womens petitions
+
+- within weeks of the inauguration, jackson administration started working on principle legislation
+- jeremiah everts, converted by native american activists into a native peoples rights activist and writer, wrote 24 essays in late 1829 laying out case against expulsion as argued by native americans all the years prior
+- everts followed the lead of indigenous activists, but to a larger audience. was read in at least 40 newspapers and read by a half million people (population of 13 million)
+- thanks to this, petitions flooded congress, most formed in evangelical language of the day, were also arguably radical as well
+- expulsion was seen as unjust and rarely seen amongst civilized nations
+- many womens petition drives came out for the cause, which hadnt been formerly seen. this was used by southern powers as evidence that the north was becoming effeminate, soft, and the gendered criticism was accepted by many in power (men), even in the north.
+
+jackson's early presidency
+
+- inauguration coincided with gold being found in august 1829 which led thousands to min native lands, this led to increased violence in native communities
+- expulsion debate started april 6 1830
+- lots of back and forth arguing that sounds quite familiar to modern day righteous indignance.
+- "to save" native peoples, "they must be expelled."
+- counter argument was stronger, that treaties were treaties, regardless of anything else
+- the argument was basically "leave, and save yourself"
+- expansion of slavery in southern states was also at the root of a lot of this
+- under threat from jackson administration as well as vote bargaining, a few house members switched sides and cast votes to expel 102 to 97
+- public spirit and outrage was not enough and waned
+
+the "act to provide and exchange of lands with the indians residing in any of the states or territories, and fro their removal west of the river mississippi"
+
+- was poorly put together
+- deported families received aid for one year after expulsion
+- was explicitly outlined in writing that "this does not violate a treaty"
+- no way to tell value of land, no method for negotiation, the logistics of transportation were excluded, no supervision stated
+- warnings became threats and by mid 1830s troops were force marching people in chains in alabama and pursuing starving families from camp to camp in florida
+- whole thing crumbled and became a nightmare
