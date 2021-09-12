@@ -168,7 +168,7 @@ jackson's early presidency
 - the argument was basically "leave, and save yourself"
 - expansion of slavery in southern states was also at the root of a lot of this
 - under threat from jackson administration as well as vote bargaining, a few house members switched sides and cast votes to expel 102 to 97
-- public spirit and outrage was not enough and waned
+  public spirit and outrage was not enough and waned
 
 the "act to provide and exchange of lands with the indians residing in any of the states or territories, and fro their removal west of the river mississippi"
 
@@ -178,3 +178,60 @@ the "act to provide and exchange of lands with the indians residing in any of th
 - no way to tell value of land, no method for negotiation, the logistics of transportation were excluded, no supervision stated
 - warnings became threats and by mid 1830s troops were force marching people in chains in alabama and pursuing starving families from camp to camp in florida
 - whole thing crumbled and became a nightmare
+
+### Chapter 4: "Forked Tongue and Shallow Heart"
+
+_2021-09-12_
+
+expulsion
+
+- jackson admin churned through anyone who expressed doubt or question policy
+- over half of the staff in the bureau of indian affairs was replaced (29) in the first few years of jackson presidency.
+- result was administration with several zealous officers at the top with little sympathy for indigenous americans, and dozens of inexperienced, appointees at the bottom
+- 1828 georgia legislature "possesed the right" to extend its laws to the chrokee nation and to "coerce obedience." in 1829 they passed a law that would nullify cherokee laws and customers starting june 1830
+- december 1830 state forbade cherokee from meeting in council or any judicial body. alabama and mississippi also passed similarly opppressive laws iaround the same time
+- native response to expulsion act was to not cooperate. cherokee nation started to prepare a lawsuit
+- jackson had wanted to meet with creek, cherokee, choctaw, and chickasaw leaders. only a few choctaw came and the chickasaws did attend, but regretted it
+- "negotiations" took place, jackson delivered a speech then got out.
+- chickasaws expressed a desire to see the lands they would be given before agreeing to anything. they were told if you dont agree you wont get anything.
+- reluctantly and under extreme pressure, the chickasaws "agreed" to their own expulsion
+- jackson reemerges to talk about how they will all be taken care of and to celebrate this new "friendship" and so on. in private, he wrote future president james polk, "i have in the chickisaw treaty destroyed the serpent."
+- similar approach was taken by u.s. in the following negotiations with choctaws. choctaw leader george harkins compared situation to a man surrounded on three sides by a raging fire with water and a distant shore on the fourth. "who would call plunging into the water a voluntary act?" expulsion was mandated.
+- john eaton and john coffee claimed to choctaws, "it is not your lands, but your happiness that we seek to obtain."
+- anonymous deportee wrote "the new jaw bone" lyrics hating on john eaton
+- choctaws too, fearing extermination, signed a treaty of their own expulsion
+- through the 1830s, nations in ohio were expelled, whites wanted to open up trade through great lakes
+
+legislative oppression
+
+- native and african americans were prohibited in georgia and alabama from testifying against white people.
+- reasons given to justify this was that native peoples did not believe in eternal punishment and therefore could not be counted on to tell the truth
+- all people being given an equally weighted voice was a threat, and the fear of this was documented
+- 1822 mississippi law required every "free negro or mulatto" between ages 16 and 50 to quit the state within ninety days or be solid into slavery for five years
+- 1832 alambama law prohibted all free persons of color from settling in the state on penalty of whipping and if not leaving within 20 days, enslavement for one year
+- in georgia free "people of color" who entered the state were bound as laborers until the could pay a fine of $100, cosigning most to a life of servitude
+- 1828 georgia law proihibited creek people from crossing into the. state without a permit, ten day prison sentence was penalty
+- language was also used to keep native peoples under the thumb of the law. laws spanning hundreds of books were only seen as a mode of oppression to native peoples, not something they could leverage for their own protection
+- the response to these voices was always "it's bad, but unfortunately nothing can be done"
+- the execution of george tassel. us supreme court case "the cherokee nation v the state of georgia" sets precedent that indigenous nations are "domestic dependent nations" not "foreign states" and therefore supreme court has no jurisdiction as outlined in the consitution. this has defined legal relations between u.s. and indigenous nations ever since.
+- were the supreme court to have jurisdiction, it would have likely ruled in favor of the cherokee nation
+
+war department
+
+- war department "indian office" was a "monument to the people it made disappear" with paintings and artifacts decorating the room where expulsion was poorly planned
+- imprecise surveyors' reports, fabricated maps from trader and traveler reports, it was hard to have an accurate picture of the west without years of research. "we have no satisfactory information"
+- land was promised to chrokees, but then promised again later to chickasaw nation. to solve it, osage land could be given to cherokees displacing osage, or choctaw land given to chickasaw, displacing choctaw. a total disorganized mess.
+- a "grand river of the neosho" was referred to in u.s.-cherokee treaty of 1828, but it didnt even exist. it was a tiny creek and no one could find it.
+- maps were made inaccurately, reducing territories by 13 percent accidentally miscalculating distances and basic units of measurement
+- reports of early migrants to the west were not encouraging. "it is a graveyard"
+- 60 of 455 quapaws had starved to death in 1827
+- 1830 treaty was conditional on chickasaws finding a suitable location in the west. john coffee negotiated a second expulsion treaty in 1832 without that condition, the treaty of pontotoc.
+- levi colbert wrote a 14 page letter of protest to jackson. 61 chickasaw men signed the letter objecting to coffee's attempts at bribary. "i had not lived and cast my senses, as you know, along the whiteman's march, with my eyes shut. i saw the white man's march was to take my country. i prepared my mind and the mind of my nation for it." Was "the spirit of liberality and equality which distinguishes the united states from all the empires merely a healousy and defence of their own particular rights, an unwillingness to be oppressed themselves?" or was it "a high respect for the rights of others, an unwillingness, that any man high or low should be wronged?"
+- "I want my father, to keep down the tomhawk in the Chickasaw hands for ever. Will my father listen. My Chiefs and warriors heard the Presidents talks which he made to us at Franklin in the house of God. Remember my Father, the true and living fire, which caught in your breast, flowed in your eyes, and imparted a heavenly flame into all our bosoms, -- can my Nation now, in the midst of its difficulties, look to this President and the Constitution which rules him, for a protecting guardian. Can the injured in their weakness, find in this man a never failing friend. A broad field my father is presented, it is the cause of justice, humanity and weakness. It is not the voice of restive man which ought to a wake the sensibilities of the President and Senate, but the cry of a Naked Nation contending with one man for their National rights, will arise those authorities to defend the powerless, and show to the world, that -- that spirit of liberity and equality, which distinquishes the United States from all the Empires in the world, is not as many might imagine, a jealously and defense of their own particular rights, an unwillingness to be oppressed themselves but a high respect for the rights of Others, -- an unwillingness, that any man high or low should be wronged." [Levi Colbert to President Andrew Jackson, 22 NOV 1832](https://web.archive.org/web/20111025065425/http://www.chickasawhistory.com/CHICL_32.htm)
+
+expulsion begins
+
+- preparing for expulsion of choctaw nation. 15-20k people from mississippi
+- george gibson put in charge by jackson
+- they had confidence, but already nearly a hundred choctaw wqomen and children were starving in the west indian territory.
+- choctaw weren't going to go easily
