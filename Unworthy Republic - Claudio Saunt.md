@@ -235,3 +235,36 @@ expulsion begins
 - george gibson put in charge by jackson
 - they had confidence, but already nearly a hundred choctaw wqomen and children were starving in the west indian territory.
 - choctaw weren't going to go easily
+
+## Section Three: The Best Laid Plans
+
+### Chapter 5: The Plan of Operations
+
+_2021-11-25_
+
+george gibson
+
+- in the first 50 years of us, 174 delegations fro mat least 55 different indigenous nations traveled to meet with the us president and congress
+- george gibson commissary general of subsistence sought to administer and settle all the accounts and claims of indigenous peoples after their deportation
+- his office was initially created to provision the army more effectively
+- the paperwork was astronomical
+- admonished "unnecessary" expenditures like medical care which at time was life or death for natives
+- gibson's office was highly regulatory and prioritized rule creation and rule following
+- absurdly regulated, down to how paper was to be folded for roll taking
+- this guy and his rules were governing the deportation. officers instructed not to feed deportees ponies, give them coffee, etc
+- every expense was personally scrutinized by his office
+- best use of "public funds" was seen as the ethical motive in expulsion instead of the humanity of the expelled
+
+choctaw expulsion
+
+- was the first under legislation of may 1830, was the test case for future operations
+- federal agent william ward in charge was often too drunk to read or write and sometimes had his servant open mail for him. described as confused and impaired
+- ward actively worked to deter choctaws who wanted to stay according to treaty rules and had every right legally to stay
+- ward was supposed to write down names of those who wanted to stay in mississippi, and simply didnt until everyone eventually agreed to expulsion
+- steamboats were particularly dangerous from explosions and disease. groups did not want to board for fear of death
+- senecas and delawares of sandusky ohio 8 month journey to ne oklahoma. at least 30 died, and 14 left sick out of 398 in the journey.
+- treaty for a different tribe of senecas was forwarded to officers confusing everyone, showing the type of confusion that was constant and indicating how poorly managed the operation was.
+- failure blamed on the natives. "they seem to think they have nothing to do except wait to be moved by the government", they departed too late, should have taken water transportation, etc
+- natives seen as people that simply didnt want to do what they were being asked to do
+
+### Chapter 6:
