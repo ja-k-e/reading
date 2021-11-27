@@ -267,4 +267,40 @@ choctaw expulsion
 - failure blamed on the natives. "they seem to think they have nothing to do except wait to be moved by the government", they departed too late, should have taken water transportation, etc
 - natives seen as people that simply didnt want to do what they were being asked to do
 
-### Chapter 6:
+### Chapter 6: The Cholera Times
+
+_2021-11-26_
+
+lewis cass milatary operations against the sauk, meskwaki / fox, and ho-chunk / winnebago
+
+- in addition to the three sisters (corn, beans, and squash), mining was a part of these tribes' history. lead sulfide / galena had religious and pigmentation purposes.
+- colonists swarmed during the lead rush, and built lodging that paled in comparison to the sauk landowners who lived there
+- it didnt take long for the colonizers to start taking these houses away from sauk owners
+- after three years of this, sauks abandoned their villages and crossed the mississippi
+- about one year later, 1000 sauks returned and had a tense standoff over their land
+- commander edmond gaines, who had been outspoken against jackson's policies was recovering from sickness in tennessee, so the jackson admin passed over him and gave command to general henry atkinson to drive the sauk and fox over the mississippi
+- a company of drunken illinois rangers attacked the sauks and were routed despite having the numbers. this was called the black hawk war, named after the sauk leader
+- an example was sought to be made of the sauks in northern illinois
+- 2300+ including a young abraham lincoln pursued the sauks without success for a month.
+- jackson was continually embarassed by these failures and his rage increased
+
+cholera and sauk defeat - 1832
+
+- throughout chicagoland and the upper midwest, cholera decimated colonist solidiers
+- bodies were thrown into rivers and lake michigan
+- atkinson managed to defeat the sauks during this time in a battle
+- soldiers pursued the survivors, capturing and brutalizing them. the largest group of survivors was pinned and over 260 were killed with around 200 escaping over the river
+- ho-chunks, menominee, dakotas, and potawatomis, trying to build favor with the united states, hunted down surviving villagers and their starving children
+- the federal government claimed the sauk people ceded their eastern lands and therefore were not owed an exchange of lands
+- free sauk prisoners carried cholera into their communities in the west. how many died is unknown
+- cholera and malaria killed many in the summer of 1833
+- by one estimate 20 percent of choctaws in the west died by fall 1833, creeks in the west died at a similar rate
+- not more than 1/4 of creek children born between 1830 and 1833 were still alive after the arkansas river flood of june 1833
+
+perception in the east
+
+- americans believed native people were leaving voluntarily
+- in the east the perception was still that the united states was on a humanitarian mission to save and preserve native peoples
+- many believed the sauk war was justifiable based on sauk vulgarity
+- cherokee john ross fought a legal war against the united states during this time
+- worcester v georgia 1831-33
