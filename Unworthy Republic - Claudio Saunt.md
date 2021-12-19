@@ -311,13 +311,23 @@ perception in the east
 
 _2021-12-19_
 
-
 - land given in square plots, easier to map, harder to dispute, but unnatrual. grid like distribution of parcels of land was the dream.
 - native peoples' settlements followed contours of terrain and had shared spaces
 - this went against governments vision for land management
 - logistics of households and family definition was also confusing. chicksaw leader ishtehotopa king challenged andrew jackson / us government on its arbitrary classifications
 - condemnation of slavery, but not slaveholding. some though those who inherited enslaved people were less morally comprimised than those who acquired them
 - there was a boom in companies related to capital and land. vehicles for pooling capital and squeezing the dispossessed out of their land
-- the change from biodiverse natural farming to monocrop agriculture. 
+- the change from biodiverse natural farming to monocrop agriculture.
 - with the expulsion of indigenous peoples went the expertise of utilizing the land
 
+### Chapter 8: "A Combination of Designing Speculators"
+
+- speculators quickly rushed into newly purged land, in some cases digging up the dead in the name of science
+- choctaws were entitled to 578k acres received 193k
+- there was a lot of scheming from speculators to get livestock, land, and people from the choctaws
+- corruption ranged from drunken incompetent and careless handling of sales and payment records, to intentional deceipt and fraud
+- government billed chicasaws for their own deportation, everything from house nails to travel expenses for leaders to chain link fences.
+- from 1833-1841 the general land office charged the chickasaw nation over $114k
+- chickasaw nation also uncovered over $600k of suspicious and fraudulent charges—very corrupt
+- ultimately the us made the chickasaw nation fund its own deportation
+- creeks were taken advantage of and forced or tricked into selling their land by hired dishonest actors made to convince families it was a good idea
