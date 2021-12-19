@@ -304,3 +304,20 @@ perception in the east
 - many believed the sauk war was justifiable based on sauk vulgarity
 - cherokee john ross fought a legal war against the united states during this time
 - worcester v georgia 1831-33
+
+## Section 4: Financing Dispossession
+
+### Chapter 7: The Financiers
+
+_2021-12-19_
+
+
+- land given in square plots, easier to map, harder to dispute, but unnatrual. grid like distribution of parcels of land was the dream.
+- native peoples' settlements followed contours of terrain and had shared spaces
+- this went against governments vision for land management
+- logistics of households and family definition was also confusing. chicksaw leader ishtehotopa king challenged andrew jackson / us government on its arbitrary classifications
+- condemnation of slavery, but not slaveholding. some though those who inherited enslaved people were less morally comprimised than those who acquired them
+- there was a boom in companies related to capital and land. vehicles for pooling capital and squeezing the dispossessed out of their land
+- the change from biodiverse natural farming to monocrop agriculture. 
+- with the expulsion of indigenous peoples went the expertise of utilizing the land
+
