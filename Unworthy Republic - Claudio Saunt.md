@@ -341,7 +341,7 @@ _2022-01-01_
 - native peoples were frequently killed by vigilante groups, soldiers, state militias across the south in the later half of the 1830
 - land lotteries distributed cherokee territory amongst georgia whites
 - the charge that jackson was aiding oppressors laid against jackson from john ross and four cherokee representatives to congress in may 1834
-- first example was jackson distributing cherokee annuities to individuals instead of a cherokee nation governemtn
+- first example was jackson distributing cherokee annuities to individuals instead of a cherokee nation government
 - second example was the u.s. government employing "unfit persons"
 - jackson employed unfit people to manage native expulsion, frequently prioritizing personal friends over qualified experience
 - 1832 treaty of paynes landing provided for seminole deportation to the west if, after visting, they were satisfied with the "character" of the country. at this point most of the seminoles were "half-starved" and struggling
@@ -361,3 +361,18 @@ _2022-01-01_
 - creeks faced with difficult decision of violence to survive in the short term, or patience and being opportunistic working with u.s.s government that might lead to a slow but total extermination
 - creeks were pursued be georgia state militia and tracked down and slaughtered. some mothers smothered their children trying to keep them quiet. nearing capture occasionally some committed suicide and killed their children
 - infrequently, creek refugees took over homesteads murdering the occupants, much to the horror of those perpetuating the violence
+
+## Chapter 10: At the Point of a Bayonet
+
+- cherokees refusing to leave georgia 1836
+- cherokee homes were significantly undervalued, and many families didnt even receive that.
+- u.s. planters thought native peoples should be enslaved for their own good
+- cherokees were essentially starved out of their homelands in southern appalachia
+- cherokee expulsion began may 26, 1838 with, "act to provide exchange of lands with the indians" which turned the deportation of 80k into federal policy
+- violently, georgia militia of 3500 arrested and removed families at all hours
+- this expulsion was completed a month later in mid june 1838, cherokee had been collected and incarcerated awaiting explusion west
+- white people just moved in. took over houses, slept in beds, used pots. straight up took over
+- most of the cherokees were forced to embark on a 700 mile journey over four months on foot.
+- nearly 11k people were deported in such a manner over 11 detachments
+- around 1000 people died in that operation. some reports as many as 3.5k. immense suffering was endured.
+- trail of tears.
