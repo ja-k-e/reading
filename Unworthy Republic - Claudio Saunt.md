@@ -305,7 +305,7 @@ perception in the east
 - cherokee john ross fought a legal war against the united states during this time
 - worcester v georgia 1831-33
 
-## Section 4: Financing Dispossession
+## Section Four: Financing Dispossession
 
 ### Chapter 7: The Financiers
 
@@ -331,3 +331,33 @@ _2021-12-19_
 - chickasaw nation also uncovered over $600k of suspicious and fraudulent charges—very corrupt
 - ultimately the us made the chickasaw nation fund its own deportation
 - creeks were taken advantage of and forced or tricked into selling their land by hired dishonest actors made to convince families it was a good idea
+
+## Section Five: From Expulsion to Extermination
+
+### Chapter 9: 1836 The Southern World at War
+
+_2022-01-01_
+
+- native peoples were frequently killed by vigilante groups, soldiers, state militias across the south in the later half of the 1830
+- land lotteries distributed cherokee territory amongst georgia whites
+- the charge that jackson was aiding oppressors laid against jackson from john ross and four cherokee representatives to congress in may 1834
+- first example was jackson distributing cherokee annuities to individuals instead of a cherokee nation governemtn
+- second example was the u.s. government employing "unfit persons"
+- jackson employed unfit people to manage native expulsion, frequently prioritizing personal friends over qualified experience
+- 1832 treaty of paynes landing provided for seminole deportation to the west if, after visting, they were satisfied with the "character" of the country. at this point most of the seminoles were "half-starved" and struggling
+- this treaty was seen by many as extortive and a "white man's treaty"
+- seminole delgations sent west to determine whether or not the land was satisfactory were coerced or forced to say they were, to solidfy the treaty and guarantee expulsion
+- december 28, 1835 dade massacre, 180 seminoles and black allies take out 109 us troops outside tampa bay
+- over the course of 1830s, population of enslaved peoples in alamaba more than doubled to 253k
+- by 1840, one out of four enslaved enslaved people worked on land that only a few years earlier belonged to creeks
+- 1836 144k white americans in mississippi, weith over 164k african americans enslaved there
+- mississippi whites struggling to keep enslaved people under control, while simultaneously and eagerly taking/acquiring land from native peoples
+- "we dont fear any other danger to our popiulation than a little house burning here and there and now and then a few throats cut of the women and children and defenceless portion of our population" - david hubbard
+- growing fear of enslaved revolt and teaming up with native peoples
+- in may 1836 a party of creeks murdered several gorgia planters sparing the enslaved
+- congress took action to employ ten thousand volunteer soldiers to "repel invasions" and appropriated funds to build a "wall of defence to the far west"
+- creeks crossed into georgia and seized food storehouses claiming, "we were starving and were obliged to plunder"
+- militia struggled to retaliate with many deserting
+- creeks faced with difficult decision of violence to survive in the short term, or patience and being opportunistic working with u.s.s government that might lead to a slow but total extermination
+- creeks were pursued be georgia state militia and tracked down and slaughtered. some mothers smothered their children trying to keep them quiet. nearing capture occasionally some committed suicide and killed their children
+- infrequently, creek refugees took over homesteads murdering the occupants, much to the horror of those perpetuating the violence
