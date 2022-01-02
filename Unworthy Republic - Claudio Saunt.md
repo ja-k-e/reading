@@ -376,3 +376,32 @@ _2022-01-01_
 - nearly 11k people were deported in such a manner over 11 detachments
 - around 1000 people died in that operation. some reports as many as 3.5k. immense suffering was endured.
 - trail of tears.
+
+## Chapter 11: ‘Tis No Sin
+
+- seminoles presented strong resistance and thwarted the primary u.s. strategy to famish them out.
+- during u.s. creek wars (13-14, 36), creek warriors escaped and joined seminoles in the 1830's
+- seminoles evaded and defended themselves well from u.s. given a strong command over the wetlands, familiarity with seasonal terrain
+- blood hounds were used to track seminoles throughout florida, were ineffective and widely criticised by public, especially with slaveholding connotations (as if that use was acceptable...)
+- u.s. peace initiative looked like white flags placed alongside smoldering houses and murdered seminoles
+- seminoles and african americans were mostly immune to malaria in florida and rarely suffered from the disease
+- 1841: of 4.1k u.s. soldiers stationed in florida, 1.8k were ill. roughly 30 percent died
+- for every soldier that died in battle, four succombed from disease
+- alcoholism, substance abuse, ptsd and suicide became a problem for the florida volunteers that fought the seminoles
+- for all the struggles of u.s. troops, native peoples were struck harder
+- it was appalling how the seminoles were treated as they fled for months on end subsiting on plants, constantly in pursuit
+- women and children were also taken separately and handled horribly
+- this oppression presented a compelling case for most observers, and was considered abhorrent by many
+- the second u.s.-seminole war concluded may 1842. 3824 were deported by the u.s. at a cost between 30 and 40 million dollars, several hundred seminoles left in the everglades, roughly 1k died, 1,466 soldiers died
+- for every 4 people it deported, the u.s. killed one person, lost three soldiers, and spent $32k. today's dollars that is $8.5m
+
+## Afterword: The Price of Expulsion
+
+- slavery and cotton and tobacco production spread into stolen land
+- masses of wealth were acquired
+- massive losses for the dispossed. chickasaws estimated to have lost $4m in sales of their allotments as they were paid in depreciated money, the losses could have been in excess as much as $7m. as much as $3m from auctions from general land office, total as high as $10m
+- that sum, if invested the way most wealth was at that time, would make chickasaws as wealthy as any one of the top 3 corporations at that time
+- in todays money, chickasaws lost as little as $112k per household and as amuch as over $1m
+- choctaws $10m, creeks between $4m and $8m
+
+> The deeply intertwined causes of slavery and dispossession were more alike than not. Both generated enormous profits; both earned the support of northerners who were sympathetic to the cause of white supremacy and often personally invested in the oppressive policies; and both generated vocal opposition in Congress that remained a minority, in part because three-fifths comprimise skewed representation in favor of the slave South. Southern slaveholders mocked and condemned anti-expulsion activists and abolitionists with equal contempt, and they met resistance to their transcontinental aspirations by threatening to break up the Union. Just as the federal government protected slavery at every turn, it facilitated the expulsion of indigenous Americans by overseeing the logistics of the operation, setting aside western land for the dispossessed, and turning the entire enterprise into a sham humanitarian victory for planter-politicians and their northern allies. Despite these parallels, the two causes came to very different endings. There would be no reckoning over state-sponsored mass deportation. Expulsion was the war the slaveholders won.
